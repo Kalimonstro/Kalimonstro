@@ -1,0 +1,5 @@
+- 👋 Olá, sou @Kalimonster
+- 👀 Estou interessado em ...Aprender!
+- 🌱 Atualmente estou aprendendo...Python, GML , BTC, Investimentos !
+- 😄 Pronomes: ...Kali, Monster
+- ⚡ Curiosidade: ...Todas Sobre T.I
